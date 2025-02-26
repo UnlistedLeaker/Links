@@ -35,8 +35,6 @@ https://networking.ass3.oldsouthmarlinclub.com/
 https://popteeeeee-utopia-giysdg.swanndvr.net/
 https://gazatribalsclanthebest.ostrovsky.sk/
 https://fuga.linkpc.net/
-Selenite Links
-IDK
 Zatoga Links (500+ Games)
 https://zatoga.pages.dev
 https://zatoga.is-an.app
